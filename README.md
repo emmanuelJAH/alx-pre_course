@@ -1,1 +1,1 @@
-My first readme
+Africa is great
